@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Digital Development/ Marketing
 - 📫 How to reach me: claramariademoura17@gmail.com/ 31 98847-0339
 - 😄 Pronouns: Clara 
-- ⚡ Fun fact: * develop in several languages
+- ⚡ Fun fact: * desenvover em programação e ser referencia para outras garotas 
   
 
 <!---
